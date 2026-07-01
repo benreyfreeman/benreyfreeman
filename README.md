@@ -1,5 +1,5 @@
 '<div align="center">'
- ![image alt](https://file.garden/aTMG8HR-BjYQTJGS/image-05e2-gradientmap.pro.png)
+ ![image alt](https://file.garden/aTMG8HR-BjYQTJGS/Untitled90_20251204094250.png)
                                                                 
 
    [Strawpage](https://benreyfromteo.straw.page/)
