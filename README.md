@@ -11,6 +11,15 @@
 [Spacehey](https://spacehey.com/freelancehusbands)
 
 <p align="center">
+ 
+Ponytown's one and only Glisten!
+Thanks to [PT-Hall-Of-Fame!](https://github.com/pt-hall-of-media)
+
+<p align="center">
+ 
+I'm already the one and only Benrey <3
+
+<p align="center">
 💙 ﹐ıllı  he/him # ᶻz﹕
 
 <p align="center">
