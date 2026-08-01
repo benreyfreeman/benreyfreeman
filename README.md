@@ -12,7 +12,7 @@
 
 <p align="center">
  
-Ponytown's one and only Glisten!
+Ponytown's one and only Benrey! (And Glisten)
 Thanks to [PT-Hall-Of-Fame!](https://github.com/pt-hall-of-media)
 
 <p align="center">
