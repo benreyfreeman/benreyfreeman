@@ -16,10 +16,6 @@ Ponytown's one and only Benrey! (And Glisten)
 Thanks to [PT-Hall-Of-Fame!](https://github.com/pt-hall-of-media)
 
 <p align="center">
- 
-I'm already the one and only Benrey <3
-
-<p align="center">
 💙 ﹐ıllı  he/him # ᶻz﹕
 
 <p align="center">
