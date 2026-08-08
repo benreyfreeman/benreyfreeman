@@ -10,6 +10,8 @@
 [PronounsPage](https://en.pronouns.page/@benreyvirus)
 [Spacehey](https://spacehey.com/freelancehusbands)
 
+[Gimmicks Page](https://benreyspassport.straw.page)
+
 <p align="center">
  
 Ponytown's one and only Benrey! (And Glisten)
