@@ -7,7 +7,7 @@
 
    [Strawpage](https://benreyfromteo.straw.page/)
 [Atabook](https://benreyvirus.atabook.org/) 
-[PronounsPage](https://en.pronouns.page/@benreyvirus)
+[PronounsPage](https://en.pronouns.page/@bloodysuit)
 [Spacehey](https://spacehey.com/freelancehusbands)
 
 [Gimmicks Page](https://benreyspassport.straw.page)
