@@ -14,8 +14,10 @@
 
 <p align="center">
  
-Ponytown's one and only Benrey! (And Glisten)
+Ponytown's one and only Benrey!
 Thanks to [PT-Hall-Of-Fame!](https://github.com/pt-hall-of-media)
+And thanks to [The-Tempist](https://github.com/THE-TEMPIST)
+<3
 
 <p align="center">
 💙 ﹐ıllı  he/him # ᶻz﹕
