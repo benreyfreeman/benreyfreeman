@@ -16,7 +16,14 @@
  
 Ponytown's one and only Benrey!
 Thanks to [PT-Hall-Of-Fame!](https://github.com/pt-hall-of-media)
+<img width="650" alt="image" src="https://github.com/user-attachments/assets/bd78bfff-ca03-493a-bf3e-818a10764734" />
+<p align="center">
+
 And thanks to [The-Tempist](https://github.com/THE-TEMPIST)
+
+<img width="538" height="24" alt="image" src="https://github.com/user-attachments/assets/7b5cffb5-4af3-42d2-a324-b0a3e38e8e85" />
+
+
 <3
 
 <p align="center">
